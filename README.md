@@ -7,7 +7,7 @@
 
 
 
-<p align="center">$\color{#b5b5b5}{\textsf{𓏲ּ𝄢 ⠀ times⠀ 𓈒 ⠀ ed ⠀ ⟢}}$</p>
+<p align="center">$\color{#b5b5b5}{\textsf{𓏲ּ𝄢 ⠀ times⠀ 𓈒 ⠀ twice ⠀ ⟢}}$</p>
 
 <p align="center">$\color{#b5b5b5}{\textsf{under 16  and pro/darkship  dni}}$</p>
 
