@@ -1,19 +1,13 @@
 
+<img src="https://github.com/user-attachments/assets/d958cf2a-bada-4a98-82fd-5df29c5d9168" align="left" width="350" alt="Alt text">
 
-<div align="center"><img src="https://github.com/user-attachments/assets/674a017d-1c6a-46d5-923a-5ecf1d124d63" width="500" alt="Logo"></div>
+<div align="center"><img src="https://github.com/user-attachments/assets/be3db145-383a-4878-afd2-66e670f9627d" width="500" alt="Logo"></div>
 
-
-　　　　　　　　　　　　　　　　　　　　　　  　　　　　 　　![](https://komarev.com/ghpvc/?username=2TlMES&color=f2f2f2&label=lives)
-
-
-
-<p align="center">$\color{#b5b5b5}{\textsf{𓏲ּ𝄢 ⠀ times⠀ 𓈒 ⠀ twice ⠀ ⟢}}$</p>
-
-<p align="center">$\color{#b5b5b5}{\textsf{under 16  and pro/darkship  dni}}$</p>
-
-
+                                               
+                                                                <img width="150" height="20" alt="tumblr_efef4b4c7fe31c0a9c9283fe104245bf_54334f67_250" src="https://github.com/user-attachments/assets/9058ba36-a317-4879-bd27-6caf20abf009" />
 <div align="center">
 <details>
+
   <summary>extra info</summary>
 forsaken fandom iwcare please   
   
@@ -35,12 +29,12 @@ forsaken fandom iwcare please
   making a rentry / info page soon  ^_^  watch out for that ehe itll be soo cool
 </details>
 </div>
-                                 
-                                 
-<div align="center"><img src="https://github.com/user-attachments/assets/2504f2cf-4e84-4bff-b674-57c372940e89" width="150" alt="Logo"><img src="https://github.com/user-attachments/assets/4a28aeb7-041b-4393-b061-fe0af3e771d6" width="150" alt="Logo"><img src="https://github.com/user-attachments/assets/d94fb12c-a4fd-4c0b-8590-f6e33a3854dd" width="150" alt="Logo"></div>
+
+                                 𓏲ּ𝄢 ⠀ times⠀ <img width="20" height="20" alt="tumblr_7f91bb532aa006e89c9229c03acbe73f_2684dfeb_75" src="https://github.com/user-attachments/assets/a27bc5df-9fa2-413a-84ee-e75a70d67758" />𓈒 ⠀ twice ⠀ 𓈒𓏶 　 ♡       ![](https://komarev.com/ghpvc/?username=2TlMES&color=f2f2f2&label=lives)
+
+                                       under 16   ㅤ 𓈒 ꒪   pro/darkship  dni     𓈒
+<img width="20" height="20" alt="tumblr_a13c5fc6788076d8a56ce025c4f488cf_8ef96a91_75" src="https://github.com/user-attachments/assets/528e9111-0763-4a67-919c-7f68727a8ed1" /> ㅤ  ㅤ     
 
 
-<p align="center">$\color{#dedede}{\textsf{"  It's not that I can't remember, it's that I don't want to remember.  "}}$</p>
 
-
-<div align="center"><img src="https://github.com/user-attachments/assets/be3db145-383a-4878-afd2-66e670f9627d" width="500" alt="Logo"></div>
+<div align="center"><img src="https://github.com/user-attachments/assets/674a017d-1c6a-46d5-923a-5ecf1d124d63" width="500" alt="Logo"></div>
