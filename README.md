@@ -4,7 +4,7 @@
 <div align="center"><img src="https://github.com/user-attachments/assets/be3db145-383a-4878-afd2-66e670f9627d" width="320" alt="Logo"></div>
 
                                                
-                                                                <img width="150" height="20" alt="tumblr_efef4b4c7fe31c0a9c9283fe104245bf_54334f67_250" src="https://github.com/user-attachments/assets/9058ba36-a317-4879-bd27-6caf20abf009" />
+                                                      <img width="150" height="20" alt="tumblr_efef4b4c7fe31c0a9c9283fe104245bf_54334f67_250" src="https://github.com/user-attachments/assets/9058ba36-a317-4879-bd27-6caf20abf009" />
 <div align="center">
 <details>
 
