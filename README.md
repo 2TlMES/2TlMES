@@ -1,7 +1,7 @@
 
 <img src="https://github.com/user-attachments/assets/d958cf2a-bada-4a98-82fd-5df29c5d9168" align="left" width="350" alt="Alt text">
 
-<div align="center"><img src="https://github.com/user-attachments/assets/be3db145-383a-4878-afd2-66e670f9627d" width="300" alt="Logo"></div>
+<div align="center"><img src="https://github.com/user-attachments/assets/be3db145-383a-4878-afd2-66e670f9627d" width="320" alt="Logo"></div>
 
                                                
                                                                 <img width="150" height="20" alt="tumblr_efef4b4c7fe31c0a9c9283fe104245bf_54334f67_250" src="https://github.com/user-attachments/assets/9058ba36-a317-4879-bd27-6caf20abf009" />
@@ -30,11 +30,11 @@ forsaken fandom iwcare please
 </details>
 </div>
 
-                                 𓏲ּ𝄢 ⠀ times⠀ <img width="20" height="20" alt="tumblr_7f91bb532aa006e89c9229c03acbe73f_2684dfeb_75" src="https://github.com/user-attachments/assets/a27bc5df-9fa2-413a-84ee-e75a70d67758" />𓈒 ⠀ twice ⠀ 𓈒𓏶 　 ♡       ![](https://komarev.com/ghpvc/?username=2TlMES&color=f2f2f2&label=lives)
+                                     𓏲ּ𝄢 ⠀ times⠀ <img width="20" height="20" alt="tumblr_7f91bb532aa006e89c9229c03acbe73f_2684dfeb_75" src="https://github.com/user-attachments/assets/a27bc5df-9fa2-413a-84ee-e75a70d67758" />𓈒 ⠀ twice ⠀ 𓈒𓏶 　 ♡   ![](https://komarev.com/ghpvc/?username=2TlMES&color=f2f2f2&label=lives)
 
                                        under 16   ㅤ 𓈒 ꒪   pro/darkship  dni     𓈒
 <img width="20" height="20" alt="tumblr_a13c5fc6788076d8a56ce025c4f488cf_8ef96a91_75" src="https://github.com/user-attachments/assets/528e9111-0763-4a67-919c-7f68727a8ed1" /> ㅤ  ㅤ     
 
 
 
-<div align="center"><img src="https://github.com/user-attachments/assets/674a017d-1c6a-46d5-923a-5ecf1d124d63" width="300" alt="Logo"></div>
+<div align="center"><img src="https://github.com/user-attachments/assets/674a017d-1c6a-46d5-923a-5ecf1d124d63" width="320" alt="Logo"></div>
