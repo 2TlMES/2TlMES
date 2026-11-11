@@ -23,6 +23,8 @@ forsaken fandom iwcare please
 
  ex friends / moots please dni if you recognize me , just block me  
 
+ anyone -16 plz  dni unless we are already friends
+
 
  on a lighter note  , much love to the ones i hold close to my heart  , my  partner  as well as my party  <3
 
@@ -32,7 +34,7 @@ forsaken fandom iwcare please
 
                                      𓏲ּ𝄢 ⠀ times⠀ <img width="20" height="20" alt="tumblr_7f91bb532aa006e89c9229c03acbe73f_2684dfeb_75" src="https://github.com/user-attachments/assets/a27bc5df-9fa2-413a-84ee-e75a70d67758" />𓈒 ⠀ twice ⠀ 𓈒𓏶 　 ♡   ![](https://komarev.com/ghpvc/?username=2TlMES&color=f2f2f2&label=lives)
 
-                                       under 16   ㅤ 𓈒 ꒪   pro/darkship  dni     𓈒
+                                       fndm    &&    pro/darkship  dni     𓈒
 <img width="20" height="20" alt="tumblr_a13c5fc6788076d8a56ce025c4f488cf_8ef96a91_75" src="https://github.com/user-attachments/assets/528e9111-0763-4a67-919c-7f68727a8ed1" /> ㅤ  ㅤ     
 
 
